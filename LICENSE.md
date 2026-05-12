@@ -1,4 +1,4 @@
-# 
+# instant opensea sniper bot | trait-analysis + price-impact-analysis is the best opensea sniper bot, featuring trait-analysis and price-impact-analysis. Fast, smart, and optimized
 
 
 
